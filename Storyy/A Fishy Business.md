@@ -1,6 +1,6 @@
 yay ok this is my story haha 🐠
 
-Don't judge the quirkiness of this story. :P
+Don't judge the quirkiness of this. :P (actualy i dont care if u do so)
 
 I have an incredible imagination just so you know :))
 
