@@ -9,7 +9,7 @@ Feel free to edit this! <º)))><
 ...
 
 One day, I woke up from my sleep and wanted to get off from my bed. To my horror, I could not feel my legs. I looked down, and widened my eyes in 
-horror.
+shock.
 
 My legs.
 
