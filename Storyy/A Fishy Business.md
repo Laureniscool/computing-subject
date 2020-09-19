@@ -36,3 +36,7 @@ As I floated in the pineapple, a traumatising thought struck me.
 Rodney, *big faces*, blood worms.
 
 I was...a goldfish?
+
+No time to think. Another big face appeared in front of me. It's... oh wait no. NO! IT CAN'T BE!
+
+Staring at me, was myself. Or my human form, at least.
