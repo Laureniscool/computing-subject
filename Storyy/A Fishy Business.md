@@ -13,7 +13,7 @@ shock.
 
 My legs.
 
-My legs were gone.
+My legs were gone!
 
 I wasn't even on my bed.
 
